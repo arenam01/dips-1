@@ -1,3 +1,6 @@
+Serving size: 4 
+Estimated prep time: 10 minutes
+
 Ingredients:
 - 2 avocados
 - 1 lime
